@@ -1,0 +1,1 @@
+# APK-Medyczna-do-ko-ci-DNA-i-leczenia-z-b-w-zjawiskiem-teleportacji-kwantowej-leczy-jak-UFO
